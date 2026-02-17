@@ -3,7 +3,7 @@
 
 ### How to Reach me
 
-- mailto:<busi>+<ness>@enigma03c.cc
+- mailto:\<busi\>+\<ness\>@enigma03c.cc
 - discord:email-me-first
 - signal:email-me-first
 
