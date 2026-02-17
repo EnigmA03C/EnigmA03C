@@ -3,7 +3,7 @@
 
 ### How to Reach me
 
-- mailto:sdangelo989@gmail.com
+- mailto:<busi>+<ness>@enigma03c.cc
 - discord:email-me-first
 - signal:email-me-first
 
