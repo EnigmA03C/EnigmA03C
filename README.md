@@ -3,7 +3,7 @@
 
 ### How to Reach me
 
-- mailto:business@enigma03c.cc
+- mailto:business@email.enigma03c.cc
 - discord:email-me-first
 - signal:email-me-first
 
